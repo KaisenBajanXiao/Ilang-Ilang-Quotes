@@ -1,0 +1,5 @@
+"use pissy email" (Rañosa, 2026)
+"relapse na ako" (Rañosa, 2026)
+"bro is speaking sushi language" (Rañosa, 2026)
+"my name is thanos and i make dicks disappear😂" (Rañosa, 2026)
+"i do watchu mean" (Rañosa, 2026)

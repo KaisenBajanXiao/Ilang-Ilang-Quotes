@@ -1,0 +1,7 @@
+"I am Lancer Deltarune" (Del Rosario, 2026)
+"I like yearning" (Del Rosario, 2026)
+"gubby dih" (Del Rosario, 2026)
+"dihcorp" (Del Rosario, 2026)
+"love life? dayum" (Del Rosario, 2026)
+"i like her so much" (Del Rosario, 2026)
+"i- i dont like her!" (Del Rosario, 2026)

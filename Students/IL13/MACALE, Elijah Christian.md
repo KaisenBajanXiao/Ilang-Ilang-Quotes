@@ -13,3 +13,5 @@
 "ouuu shii deep quotes really resonate with her... i'll take that to note" (Macale, 2026)
 "my name is verity and i like kidnapping" (Macale, 2026)
 "this \[REDACTED] is giving me hope that I might ACTUALLY sustain a \[CENSORED]" (Macale, 2026)
+"holy name, Nico Arturo Sarmiento Orduña" (Macale, 2026)
+"not a SINGLE trace of English" (Macale, 2026)

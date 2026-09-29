@@ -1,0 +1,2 @@
+"SHITTLECOCKS" (Madamba, 2026)
+"I LOVE IT, SHITTY LITTLE COCKS 💔" (Madamba, 2026)

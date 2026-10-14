@@ -7,3 +7,10 @@
 "I have a crush on Verity" (Villota, 2026)
 "I like men" (Villota, 2026)
 "I fised it, Im gonna hoswer now" (Villota, 2026)
+"Dude I miss her so much bro" (Villota, 2026)
+"sir can you memorize for us" (Villota, 2026)
+"Arigathankyou Gozaimuch sir" (Villota, 2026)
+"SIX SEVEN" (Villota, 2026)
+"Let’s have sex tomorrow Dom" (Villota, 2026)
+"I want to lick your poopy" (Villota, 2026)
+
